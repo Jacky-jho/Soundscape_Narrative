@@ -5,8 +5,8 @@ Potential clients will be able to abstract my attention to detail to my actual w
 This soundscape narrative has sa story that can be interpreted one of many ways; here's one:
 We start with a sailor battling an intense storm at sea on his ship, until all of a sudden, the ship capsizes and the sailor falls into the sea, quickly becoming unconscious. The sailor then wakes up on a beach, surrounded by some seagulls. The sailor starts walking around to get a feel of his surroundings 
 and catches the sound of a lullaby in the distance. Entranced, the sailor starts walking torwards the source of lullaby, gradually getting closer as the lullaby gets louder. The sailor encounters some sort of cave 
-with a stone slab door, so they decide to open it given that the lullaby seems to originate from inside. Once opened, the sailor lights up a torch, starts walking past some bats and starts hearing some sort of crystal.
-As the character keeps walking deeper into the cave, the sound of the crystal as well as the lullaby get louder and louder until the lullaby stops, the sailor's torch goes out and the sound of the crystal begins to fade.
+with a stone slab door, so they decide to open it given that the lullaby seems to originate from inside. Once opened, the sailor lights up a torch, starts walking past some bats and starts hearing some sort of magic/enchanting sound.
+As the character keeps walking deeper into the cave, the enchanting sound as well as the lullaby get louder and louder until the lullaby stops, the sailor's torch goes out and the enchanting sound begins to fade.
 
 The elements/techniques used that I am proudest of are:
 - Using the sound of a bird flapping away to indicate the sailor waking up after being washed ashore, since being on a beach means that there's probably seagulls and would not be afraid to approach an unconscious, immobile person. The fact that these seagulls "flap" away is to indicate that the character has woken up, made a sudden movement that scared them away.
